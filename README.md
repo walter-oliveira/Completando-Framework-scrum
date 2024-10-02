@@ -1,1 +1,2 @@
 a versão atual não deixa exportar todos os itens.
+https://miro.com/welcomeonboard/UjQ1NEhkUGFqemJQYnoyUW1ZYzcyY0tSWW05NUhnc3NvOUwyakZ2eXY5N3BrRXZnZ3BnMGJVdldWN3cyRkJlOXwzNDU4NzY0NTY2MjY4NzgwNDI5fDI=?share_link_id=737597345545
